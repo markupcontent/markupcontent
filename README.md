@@ -1,4 +1,2 @@
-- Hey guys, my name is the definition of very mad :wave:
-- I am a programmer with big bobux... 
-- I don't like leftists
-- You can contact me on Twitter and every social media 
+- im a dumb dunce bruh
+- 
